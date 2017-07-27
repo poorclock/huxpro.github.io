@@ -1,7 +1,7 @@
 # Site settings
 title: Little blue 
 SEOTitle: 30的小蓝40的猫
-header-img: img/LittleBlue.jpg
+header-img: img/home-bg.jpg
 email: 
 description: " github不会用好桑心"
 keyword: "littleblue"
@@ -64,8 +64,8 @@ ga_domain: huangxuan.me
 
 # Sidebar settings
 sidebar: true                           # whether or not using Sidebar.
-sidebar-about-description: "写写代码，做做设计，<br>离开世界之前，一切都是过程"
-sidebar-avatar: /img/avatar-hux.jpg      # use absolute URL, seeing it's used in both `/` and `/about/`
+sidebar-about-description: "浑浑噩噩，混吃等死"
+sidebar-avatar: /img/littleblue.jpg      # use absolute URL, seeing it's used in both `/` and `/about/`
 
 
 
