@@ -1,5 +1,5 @@
 # Site settings
-title: Little Blue Trip
+title: 小蓝旅行定制
 SEOTitle: 小蓝旅行定制
 header-img: img/home-bg-v1.jpg
 email: 
@@ -65,7 +65,7 @@ ga_domain: huangxuan.me
 
 # Sidebar settings
 sidebar: true                           # whether or not using Sidebar.
-sidebar-about-description: "浑浑噩噩，混吃等死"
+sidebar-about-description: "世界那么大，我想去看看"
 sidebar-avatar: /img/littleblue.jpg      # use absolute URL, seeing it's used in both `/` and `/about/`
 
 
