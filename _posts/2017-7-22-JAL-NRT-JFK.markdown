@@ -40,7 +40,7 @@ tags:
 
 <center><small>腿部空间非常宽敞！回想经济舱那蜷缩着腿的日子……</small></center>
 座椅前方的屏幕真的很大! 23英寸的液晶大屏幕，应该已是商务舱里最大的了。下面的显示屏桌可以放一些小物品。宽大的餐桌从侧面旋转展开。液晶触摸屏的遥控器和座椅调节看上去相当黑科技。
-![RemoteControl](http://mmbiz.qpic.cn/mmbiz_jpg/Esn54hx91eqp9sHMZZtz667fI9ibau1sjHUsgAar5dsNca2cFhW0bJ4ggy9ia7vDDrPxoMlhEGxlAEXm7OsTxj1Q/640?wx_fmt=jpeg&tp=webp&wxfrom=5&wx_lazy=1)
+![Remote](http://mmbiz.qpic.cn/mmbiz_jpg/Esn54hx91eqp9sHMZZtz667fI9ibau1sjHUsgAar5dsNca2cFhW0bJ4ggy9ia7vDDrPxoMlhEGxlAEXm7OsTxj1Q/640?wx_fmt=jpeg&tp=webp&wxfrom=5&wx_lazy=1)
 
 
 <center><small>触屏遥控器/座椅调节器）</small></center>
