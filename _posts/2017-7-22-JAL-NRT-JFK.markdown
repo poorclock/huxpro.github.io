@@ -11,10 +11,11 @@ tags:
 自从多年前在西雅图的波音工厂看到了正在拼装的波音787，就被这名为“梦想客机” (Dreamliner) 的飞机吸引。不仅因其简约大气的造型，更因其一项项炫酷的功能。
 
 先放一张787的帅气照片。
+
 ![787](http://mmbiz.qpic.cn/mmbiz_jpg/Esn54hx91eqp9sHMZZtz667fI9ibau1sjx4ET99cMBiaAdd4dVKv8hj8Xt7rzH7yQIm6ShkcbzibqzMKEEAYVXQjg/640?wx_fmt=jpeg&tp=webp&wxfrom=5&wx_lazy=1)
 
 
-    （ 图片来自波音官网 787 Gallery）
+    图片来自波音官网 787 Gallery
 其主要提升有：
 先进的空气动力学技术使其相比同类飞机降低了20%的油耗；
 更低的座舱压力高度让乘客吸入更多的氧气；
