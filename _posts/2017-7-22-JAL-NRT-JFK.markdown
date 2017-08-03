@@ -30,17 +30,20 @@ tags:
 前一班浦东到成田机场的航班延误了，只留了一小时转机时间的我在座位上很慌张，担心没有时间买伴手礼。负责服务我的空姐不断过来给我更新最新情况并安慰我不要着急。好在作为商务舱的特权就是优先下机，飞机刚停稳我就抓起书包第一个跑了下去，通过完全没人的安检。虽然没有时间进休息室了，但还有充足的时间抢购到了一大包零食给美国的友人。
 
 紧抱着那袋零食来到登机口的时候，经济舱的乘客已经陆陆续续排好了长队，而商务舱的乘客则可以跨过这条长队用专属的通道登机。
+![coach](http://mmbiz.qpic.cn/mmbiz_jpg/Esn54hx91eqp9sHMZZtz667fI9ibau1sjGcOBV0wV4V8gicwDp0rbcEL0HyrbibpuFzqwRickWYCYz97uibwPyhRia7A/640?wx_fmt=jpeg&tp=webp&wxfrom=5&wx_lazy=1)
+<center><small>JAL skysuite 2013年荣获Skytrax全球最佳商务舱美誉</small></center>
 
 
-（JAL skysuite 2013年荣获Skytrax全球最佳商务舱美誉）
 这架波音787仅设置商务舱和经济舱，商务舱的结构和全日空很不相同。每个座位都是一个小隔间，相当中规中矩地排列着。两侧靠窗是两个座位，机体中间也设立两个座位。两个座位之间有收放式的隔板，和小伙伴同行可以放下隔板通畅交流，而隔壁如果坐着陌生人则可以拉上，营造出无干扰的私人空间。所有的座位都可以通过畅通的通道直接到达，将打扰降低到最低的限度。两侧靠窗的位置似乎是私密性最好的。
+![foot](http://mmbiz.qpic.cn/mmbiz_jpg/Esn54hx91eqp9sHMZZtz667fI9ibau1sjOiaPIqXzuVEcicO0ndTKzjZ9bOuhZVSlibibrLnQKwaOUNaeN1RXc2uHvA/640?wx_fmt=jpeg&tp=webp&wxfrom=5&wx_lazy=1)
 
 
-（腿部空间非常宽敞！回想经济舱那蜷缩着腿的日子……）
+<center><small>腿部空间非常宽敞！回想经济舱那蜷缩着腿的日子……</small></center>
 座椅前方的屏幕真的很大! 23英寸的液晶大屏幕，应该已是商务舱里最大的了。下面的显示屏桌可以放一些小物品。宽大的餐桌从侧面旋转展开。液晶触摸屏的遥控器和座椅调节看上去相当黑科技。
+![RemoteControl](http://mmbiz.qpic.cn/mmbiz_jpg/Esn54hx91eqp9sHMZZtz667fI9ibau1sjHUsgAar5dsNca2cFhW0bJ4ggy9ia7vDDrPxoMlhEGxlAEXm7OsTxj1Q/640?wx_fmt=jpeg&tp=webp&wxfrom=5&wx_lazy=1)
 
 
-（触屏遥控器/座椅调节器）
+<center><small>触屏遥控器/座椅调节器）</small></center>
 座椅调节设置了三种模式的正坐，斜躺和平躺外，还提供了各种角度的微调，让你找到最舒适的角度和高度。180度平躺时还可以放上床垫和枕头，进一步增加舒适感。
 
 日航的过夜包是和行李箱大厂Zero Halliburton的合作款。后者以1969年阿波罗十一号带着它的铝制行李箱从月球表面将石头带回而被人熟知。查了下才知道从日本出发的航班发放的是软包，海外出发的则是看起来更有特色的软壳包 (T^T) 。洗漱包里除了洁牙套装，眼罩和耳塞外，还有唇膏用以保湿。提供的耳机似乎不是降噪的，我拿出了自带的降噪耳机Bose QC35，顺利地接上了。
@@ -48,27 +51,25 @@ tags:
 一抵达座位，空姐马上接过大衣收了起来，并询问要什么欢迎饮料。很快空姐又送来了全棉的睡衣。
 
 供餐开始后，空姐铺上的不是白桌布，而是深青底色的桌布带着红与白的线条，很有传统的日式风格，红色的小纸鹤筷架也相当精致亮眼，正对应着日航“红鹤”的logo。
-
-
-
-
-
-
-
-
-（晚餐N连击……）
+![food1](http://mmbiz.qpic.cn/mmbiz_jpg/Esn54hx91eqp9sHMZZtz667fI9ibau1sjR2lKSNibf3iabkGwoO3SSTHUXicH28t1DcswCbSfMCSIuSW6cKVA3c3SA/640?wx_fmt=jpeg&tp=webp&wxfrom=5&wx_lazy=1)
+![food2](http://mmbiz.qpic.cn/mmbiz_jpg/Esn54hx91eqp9sHMZZtz667fI9ibau1sjRQZC9NZTwevribDhefH2xTM3X3hj3PJlpTUhBKdic6QGvygdCrEG1stQ/640?wx_fmt=jpeg&tp=webp&wxfrom=5&wx_lazy=1)
+![food3](http://mmbiz.qpic.cn/mmbiz_jpg/Esn54hx91eqp9sHMZZtz667fI9ibau1sj0Xdia7icLPI5SOTR7aeCBc7ickK8GbicN3kazv431wyBbHbqK2lacXU66g/640?wx_fmt=jpeg&tp=webp&wxfrom=5&wx_lazy=1)
+![food4](http://mmbiz.qpic.cn/mmbiz_jpg/Esn54hx91eqp9sHMZZtz667fI9ibau1sjFkjibqbGia9HjQ68B5ibsHUCo0p308Wz3Z2ib8mVtEbqYUyPTajoRkm1mA/640?wx_fmt=jpeg&tp=webp&wxfrom=5&wx_lazy=1)
+<center><small>晚餐N连击……</small></center>
 晚餐依旧选择了日式，摆盘相当精美，味道可能根据高空味觉退化而特意加重了口味，感觉有点偏咸。主菜是喜欢的蒲烧鳗鱼，捧过热乎乎的米饭和味增汤，还是很有满足感的。餐后的甜点是蜂蜜蛋糕，我摸着鼓鼓的肚子，用第二个胃塞了进去。
 
 吃完晚餐，我就跑到机舱前面的卫生间洗漱。商务舱的卫生间还有备用的洗漱套装和漱口水。我尤其喜欢这样小包的漱口水，很清新又好用。换上睡衣准备休息。
 
 一直都是选择日式的，早餐打算尝尝西式。西餐包括咖啡，面包，各种搭配的黄油和果酱和主菜，主菜的口感很微妙，果然还是应该选日式的orz
+![food5](http://mmbiz.qpic.cn/mmbiz_jpg/Esn54hx91eqp9sHMZZtz667fI9ibau1sjbAJAnxibFehibx1C5viauBYCnppKuFpUDFQHAYeqZMzOFpPomWmFeyzvw/640?wx_fmt=jpeg&tp=webp&wxfrom=5&wx_lazy=1)
 
 
-（西式早餐）
+<center><small>西式早餐</small></center>
 吃完又用超大的屏幕看完了是枝裕和的《海街日记》。之前曾尝试过，但在家里果真太浮躁。飞机上正是沉浸在这节奏有点缓慢，充满生活感的温情电影的好时机。剧情讲的是在镰仓海边古民居相依为命的三姐妹，在父亲的葬礼上，不计前嫌决定接来同父异母的小妹。院子里的梅子青了又黄，滨海道的樱花开了又谢，在蕴含了故事的食物中，在充满仪式感的日常日货中，父母一代的怨恨和各自的烦恼也得以真正消解。
+![screen](http://mmbiz.qpic.cn/mmbiz_jpg/Esn54hx91eqp9sHMZZtz667fI9ibau1sjmjZdEMBxMEDpiaYf0TMjCLcUcTh5mSvwwZHMgHrpUvIvmLLpt5fDg1g/640?wx_fmt=jpeg&tp=webp&wxfrom=5&wx_lazy=1)
 
 
-（感受下这清晰大屏和小妹的美颜……）
+<center><small>感受下这清晰大屏和小妹的美颜……</small></center>
 当心事化解，小妹灿烂地笑着的时候，我的飞机也顺利降落到了肯尼迪机场。没有以往长途旅行的疲惫，不打折扣的日式服务，精致的晚餐，感人的电影以及舒适的休息，就像在别致的酒店里度过了一晚，让我下飞机时也是精神十足。
 这次由于买票太晚，没选到靠窗的座位。建议小伙伴们坐这一航班选择窗边座位，既能用787可调光线的大舷窗看日出日落，又不用像经济舱担心出入不便。：）
 
