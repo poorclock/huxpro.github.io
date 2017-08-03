@@ -2,5 +2,5 @@
 
 
 
-##### Previouse Cases
+##### Previous Cases
 
