@@ -40,8 +40,8 @@ tags:
 
  晚餐有日式和西式可选，我毫无疑问选择了日式。当飞机平稳，经济舱的乘客被分发那简单而少有选择的航空盒饭时，两舱的乘客已开始了空中美食之旅。空姐先为你铺上桌布，送上热乎乎的毛巾擦手。晚餐一道道依次呈上，内容丰富多彩。这次的晚餐真是合口味，尤其是龙虾和生姜烧鱼，没想到飞机餐也能做到如此美味！
 
-![food1](http://ou5i4urqa.bkt.clouddn.com/IMG_1938.jpg)
-![food2](http://ou5i4urqa.bkt.clouddn.com/FullSizeRender%2011.jpg)
+![food1](http://ou5i4urqa.bkt.clouddn.com/FullSizeRender%2011.jpg)
+![food2](http://ou5i4urqa.bkt.clouddn.com/FullSizeRender%2014.jpg)
 ![food3](http://ou5i4urqa.bkt.clouddn.com/FullSizeRender%2019.jpg)
 
 
@@ -50,12 +50,12 @@ tags:
 一边享用晚餐，一边用前方荧幕补上之前上映时候错过的电影《隐藏人物》，很是惬意。吃完晚餐，空姐轻轻在小桌台上摆上矿泉水防止晚上醒来口渴。我把座位放平，舒服得居然一直睡到了早晨。
 
 睡醒可以随时叫来空姐点轻食菜单上的食物。轻食菜单上虽然有喜爱的“一风堂”的拉面，还要留战斗力给之后的正经早餐，点了一盘米果，就着喜爱的全日空独家柚子汁，倒也滋滋有味。
-![food4](http://ou5i4urqa.bkt.clouddn.com/FullSizeRender%2028.jpg)
+![food4](http://ou5i4urqa.bkt.clouddn.com/IMG_1938.jpg)
 
 
 
 吃完零食后不久，空姐就送来了精致早餐。味道依然很好。纸袋中包着的是热乎乎的米饭。
-![food5](http://ou5i4urqa.bkt.clouddn.com/FullSizeRender%2014.jpg)
+![food5](http://ou5i4urqa.bkt.clouddn.com/FullSizeRender%2012.jpg)
 
 
 
