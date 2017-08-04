@@ -12,7 +12,7 @@ tags:
 
 先放一张787的帅气照片。
 
-![787](http://mmbiz.qpic.cn/mmbiz_jpg/Esn54hx91eqp9sHMZZtz667fI9ibau1sjx4ET99cMBiaAdd4dVKv8hj8Xt7rzH7yQIm6ShkcbzibqzMKEEAYVXQjg/640?wx_fmt=jpeg&tp=webp&wxfrom=5&wx_lazy=1)
+![787](http://ou5i4urqa.bkt.clouddn.com/home-bg.jpg)
 <center><small>图片来自波音官网 787 Gallery</small></center>
 
 先进的空气动力学技术使其相比同类飞机降低了20%的油耗；
