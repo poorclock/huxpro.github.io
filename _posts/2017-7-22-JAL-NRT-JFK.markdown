@@ -53,7 +53,7 @@ tags:
 供餐开始后，空姐铺上的不是白桌布，而是深青底色的桌布带着红与白的线条，很有传统的日式风格，红色的小纸鹤筷架也相当精致亮眼，正对应着日航“红鹤”的logo。
 ![food1](http://ou5i4urqa.bkt.clouddn.com/FullSizeRender%2041.jpg)
 ![food2](http://ou5i4urqa.bkt.clouddn.com/FullSizeRender%2028.jpg)
-![food3](http://ou5i4urqa.bkt.clouddn.com/IMG_4330.jpg)
+![food3](http://ou5i4urqa.bkt.clouddn.com/FullSizeRender%2030.jpg)
 ![food4](http://ou5i4urqa.bkt.clouddn.com/FullSizeRender%2027.jpg)
 <center><small>晚餐N连击……</small></center>
 晚餐依旧选择了日式，摆盘相当精美，味道可能根据高空味觉退化而特意加重了口味，感觉有点偏咸。主菜是喜欢的蒲烧鳗鱼，捧过热乎乎的米饭和味增汤，还是很有满足感的。餐后的甜点是蜂蜜蛋糕，我摸着鼓鼓的肚子，用第二个胃塞了进去。
