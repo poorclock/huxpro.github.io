@@ -27,11 +27,11 @@ tags:
 
 全日空的这条航线是波音777-300ER(77W)执飞，商务舱的空间很宽敞，两侧靠窗座位仅单独设置一个座位，机体中间设立两个座位。每个座位独立带有一个桌台，从空间上隔绝了相邻座位，塑造了私密空间以外，也为乘客提供了充足的空间来搁置杂物。
 
-![coach](http://mmbiz.qpic.cn/mmbiz_jpg/Esn54hx91eoO7EPM4zibV4J7p0Eeu8mUs5n00eZYwLEG0zpqStLqwNRLP2Whn4LeEvLmCL5yuTV2zLdjeteT6XA/640?wx_fmt=jpeg&tp=webp&wxfrom=5&wx_lazy=1)
+![coach](http://ou5i4urqa.bkt.clouddn.com/IMG_7825.jpg)
 
  座椅前方从上往下依次是屏幕，收起来的餐桌，脚搭和置物空间。餐桌在面前抽拉展开，形成一个梯形的餐桌来放置餐具和食物。屏幕下方设有插头和USB插口来充电，满足商旅乘客对手机电量的需求。通过按钮调节椅背部分升降，可以将座椅从90度垂直转变成180度平躺，让旅客在长途旅行中得到满意舒适的休息。
 
-![seat](http://mmbiz.qpic.cn/mmbiz_jpg/Esn54hx91eoO7EPM4zibV4J7p0Eeu8mUsib6PsjGthy4k1uDzRophdxkZBKWPJHV4XuEHYaIHcVGCiclAuGkddCnA/640?wx_fmt=jpeg&tp=webp&wxfrom=5&wx_lazy=1)
+![seat](http://ou5i4urqa.bkt.clouddn.com/FullSizeRender%2018.jpg)
 
 
 座椅上已经摆好了ANA提供的长途过夜包，长途旅行中客舱很干燥，过夜包中准备了牙刷牙膏眼罩和耳塞以外，还留有喷雾和唇膏，为长途旅行的保湿提供了保障。
@@ -40,9 +40,9 @@ tags:
 
  晚餐有日式和西式可选，我毫无疑问选择了日式。当飞机平稳，经济舱的乘客被分发那简单而少有选择的航空盒饭时，两舱的乘客已开始了空中美食之旅。空姐先为你铺上桌布，送上热乎乎的毛巾擦手。晚餐一道道依次呈上，内容丰富多彩。这次的晚餐真是合口味，尤其是龙虾和生姜烧鱼，没想到飞机餐也能做到如此美味！
 
-![food1](http://mmbiz.qpic.cn/mmbiz_jpg/Esn54hx91eoO7EPM4zibV4J7p0Eeu8mUsXmSOytPaX0LJyh9fb5hyFasQFTsJynLQiahI0sgIJ6QWNDAXTkeKWUA/640?wx_fmt=jpeg&tp=webp&wxfrom=5&wx_lazy=1)
-![food2](http://mmbiz.qpic.cn/mmbiz_jpg/Esn54hx91eoO7EPM4zibV4J7p0Eeu8mUs6UPoUpcP24ohxib6qnB0h9iabnpqYfHwDJghntRmeDicX9icfUVY2KDSvg/640?wx_fmt=jpeg&tp=webp&wxfrom=5&wx_lazy=1)
-![food3](http://mmbiz.qpic.cn/mmbiz_jpg/Esn54hx91eoO7EPM4zibV4J7p0Eeu8mUsfcuG1ZZG7SsjRc4CxGa2D6h1BrDib8MibeyA4hz8gWTdWmzq29Yuibhrg/640?wx_fmt=jpeg&tp=webp&wxfrom=5&wx_lazy=1)
+![food1](http://ou5i4urqa.bkt.clouddn.com/IMG_1938.jpg)
+![food2](http://ou5i4urqa.bkt.clouddn.com/FullSizeRender%2011.jpg)
+![food3](http://ou5i4urqa.bkt.clouddn.com/FullSizeRender%2019.jpg)
 
 
 
@@ -50,12 +50,12 @@ tags:
 一边享用晚餐，一边用前方荧幕补上之前上映时候错过的电影《隐藏人物》，很是惬意。吃完晚餐，空姐轻轻在小桌台上摆上矿泉水防止晚上醒来口渴。我把座位放平，舒服得居然一直睡到了早晨。
 
 睡醒可以随时叫来空姐点轻食菜单上的食物。轻食菜单上虽然有喜爱的“一风堂”的拉面，还要留战斗力给之后的正经早餐，点了一盘米果，就着喜爱的全日空独家柚子汁，倒也滋滋有味。
-![food4](http://mmbiz.qpic.cn/mmbiz_jpg/Esn54hx91eoO7EPM4zibV4J7p0Eeu8mUs7CZQqjD8XsDicGdtBVRdyFo5BabcSkJd46pA2D7m3sOH7gGO6SNHy4Q/640?wx_fmt=jpeg&tp=webp&wxfrom=5&wx_lazy=1)
+![food4](http://ou5i4urqa.bkt.clouddn.com/FullSizeRender%2028.jpg)
 
 
 
 吃完零食后不久，空姐就送来了精致早餐。味道依然很好。纸袋中包着的是热乎乎的米饭。
-![food5](http://mmbiz.qpic.cn/mmbiz_jpg/Esn54hx91eoO7EPM4zibV4J7p0Eeu8mUsdIepkRYmuNnfIkL5WEE7MUkThaH4oU4GHbzCebrNaWJCNI75hGrWZA/640?wx_fmt=jpeg&tp=webp&wxfrom=5&wx_lazy=1)
+![food5](http://ou5i4urqa.bkt.clouddn.com/FullSizeRender%2014.jpg)
 
 
 
