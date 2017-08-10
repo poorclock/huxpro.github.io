@@ -1,7 +1,7 @@
 ---
 layout:     post
 title:      箱根，沉醉在温泉乡
-date:       2017-08-01 12:00:00
+date:       2017-08-02 12:00:00
 author:     小蓝
 header-img: "img/post-bg-2015.jpg"
 catalog: true
