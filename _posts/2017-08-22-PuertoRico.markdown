@@ -48,7 +48,7 @@ tags:
 想要一个人放空自我，或是和家人朋友周游世界，计划和你的他她它举行一场梦幻的海外婚礼，或是在异域风情中度过难忘蜜月，专业的小蓝团队都用大数据为您定制旅途，成为最懂你的私人旅行管家。从此告别繁重的攻略搜索和预定安排，只用享受旅程。请记住，世界和你，只隔着一个小蓝~
 ![](http://ou5i4urqa.bkt.clouddn.com//fuji/QR.jpg)
 
-Part of the photos are from the Internet.
+<small>Part of the photos are from the Internet.</small>
 作者简介：
 球球，是汽车之城底特律的工程师。曾一个人去阿拉斯加看过极光，也曾带着一票人环游美国。从一人到多人，从青旅帐篷到奢华酒店，都能用最划算的方式制定出最满意的旅行计划。
 
