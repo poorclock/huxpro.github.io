@@ -49,6 +49,7 @@ tags:
 ![](http://ou5i4urqa.bkt.clouddn.com//fuji/QR.jpg)
 
 <small>Part of the photos are from the Internet.</small>
+
 作者简介：
 球球，是汽车之城底特律的工程师。曾一个人去阿拉斯加看过极光，也曾带着一票人环游美国。从一人到多人，从青旅帐篷到奢华酒店，都能用最划算的方式制定出最满意的旅行计划。
 
